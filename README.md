@@ -1,1 +1,8 @@
 # Data-Science-Certificates
+https://coursera.org/share/a90c2c24fd0763288cb0aac065689d36
+https://www.kaggle.com/certification/badges/jishnuu2505/105
+https://www.netacad.com/certificates/?issuanceId=c01d90bb-c676-4d94-b132-2c5044b4580c
+https://www.theforage.com/completion-certificates/9PBTqmSxAf6zZTseP/io9DzWKe3PTsiS6GG_9PBTqmSxAf6zZTseP_69785cea4b436fd64fada281_1769518963829_completion_certificate.pdf
+https://www.theforage.com/completion-certificates/ifobHAoMjQs9s6bKS/gMTdCXwDdLYoXZ3wG_ifobHAoMjQs9s6bKS_69785cea4b436fd64fada281_1770391168508_completion_certificate.pdf
+https://www.theforage.com/completion-certificates/SKZxezskWgmFjRvj9/Tcz8gTtprzAS4xSoK_SKZxezskWgmFjRvj9_69785cea4b436fd64fada281_1772195804172_completion_certificate.pdf
+https://app.aifortechies.in/certificate/mb4sEGUJSp0fxra
